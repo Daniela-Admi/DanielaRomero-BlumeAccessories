@@ -1,2 +1,2 @@
-# DanielaRomero-Blume_accessories
+# DanielaRomero-BlumeAccessories
 Accessory Store
